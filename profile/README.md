@@ -87,4 +87,28 @@ Employees can conveniently access their records, apply for services, and stay in
 [Visit Here](https://lakhimpurkheri.com/manav-sampada-up)  
 
 ### Explore More  
-- [eHRMS Login](https://lakhimpurkheri.com/manav-sampada-up)  
+- [eHRMS Login](https://lakhimpurkheri.com/manav-sampada-up)
+
+Aditional Keywords
+
+manav sampada up
+manav sampada app up
+manav sampada ehrms upsdc gov in login
+manav sampada up login
+manav sampada
+manav sampada app
+ehrmsup
+ehrms upsdc gov in
+hrms manav sampada
+manav sampada app download
+manav sampada leave app download
+manav sampada leave management
+manav sampada login
+manav sampada portal
+manav sampada portal app
+manav sampada portal up app download
+manav sampada up app
+manav sampada up app download
+sampada portal
+sampada portal login
+wwwehrms
